@@ -15,3 +15,8 @@ Pesan saya yaitu terus lanjutkan seperti ini dan semoga bisa terus saling memban
 
 
 ## Harapan Kuliah 
+1. Lulus dengan IPK > 3.5
+2. Bisa lulus dengan gelar cumlaude 
+3. Bisa menangkap pembelajaran yang diberikan dengan baik
+4. Mendapat teman dan relasi baru yang bagus
+5. Mendapat pengalaman untuk dunia kerja
