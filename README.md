@@ -12,3 +12,11 @@ Pesan saya yaitu semoga kakak korlap atau panitia lainnya lebih sering jalan(ter
 ## Kesan Pesan Cluster 2 Sejauh Ini 
 Kesan saya terhadap peran cluster 2 yaitu para teman teman cluster 2 sangat asik dan saling menghargai satu sama lain, seperti ketika ada perintah kumpul dari koordinator cluster, semua anggotanya pasti datang. Kakak pembimbingnya juga asik dan selalu memberikan informasi secara tepat waktu. 
 Pesan saya yaitu terus lanjutkan seperti ini dan semoga bisa terus saling membantu
+
+
+## Harapan Kuliah 
+1. Lulus dengan IPK > 3.5
+2. Bisa lulus dengan gelar cumlaude 
+3. Bisa menangkap pembelajaran yang diberikan dengan baik
+4. Mendapat teman dan relasi baru yang bagus
+5. Mendapat pengalaman untuk dunia kerja
